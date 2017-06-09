@@ -80,5 +80,20 @@ Phantom that's all red
 Inside all white
 Like something you ride a sled down
 
+## I care if you LiE
 
+Let the bodies hit the floor
+Let the bodies hit the floor
+Let the bodies hit the floor
+Let the bodies hit the floor
+Beaten why for (why for)
+Can't take much more
+(Here we go, here we go, here we go)
+One, nothing wrong with me
+Two, nothing wrong with me
+Three, nothing wrong with me
+Four, nothing wrong with me
+One, something's got to give
+Two, something's got to give
+Three, something's got to give now
 
